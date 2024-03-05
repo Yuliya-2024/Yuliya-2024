@@ -30,4 +30,5 @@ Just because I like it and I finally understand it in my 27th
 - basic statistical knowledge
 - english language B1 (listening and speaking)
 
-
+## Certifications
+https://drive.google.com/drive/folders/1lNozXMvihlxpjyVG_Xb_NxzrBjQBHuE1?usp=sharing
