@@ -32,3 +32,6 @@ Just because I like it and I finally understand it in my 27th
 
 ## Certifications
 https://drive.google.com/drive/folders/1lNozXMvihlxpjyVG_Xb_NxzrBjQBHuE1?usp=sharing
+
+## CV (eng, rus, pol)
+https://drive.google.com/drive/folders/1OZx-WVIx9UV6XrMndZk_JIgqG7VagNLS?usp=sharing
